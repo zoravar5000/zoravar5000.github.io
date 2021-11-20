@@ -7,14 +7,13 @@ Name: Bud's Ice Cream of San Francisco Egg Nog Since 1932
 1. the day you open it it is nice and heavy however, the next day it gets too light
 1. the day you open it i will say it was pretty good but not super good
 
-
-
-# Rating
+### Rating
 nutmeg 10nogs (not to much not to less)
 thickness 7.5 nogs (could be a bit thicker)
 aroma OK
 
-Overall: i give it a 8 nogs out of 10 nogs (10 is the best)
+**Overall**: i give it a 8 nogs out of 10 nogs (10 is the best)
+
 (one quart is not very much i finished it in two days)
 
 
