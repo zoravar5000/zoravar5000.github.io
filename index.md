@@ -1,3 +1,16 @@
+# THE WORLD OF GAMING 11/30/2022
+## A blog by Zoravar
+
+### Sector 1: Xbox
+             FORZA HORIZON 5: with the doughnut media month coming to an end, we see new cars and a holiday special month returning. Also the Auction house is back after the money hack has been repaired.
+              MINECRAFT: with two new mobs from the wild update, one being the warden which brings a new biome Ancient City and the Frog plus Allay.  There are more biomes like the Lush Caves and the Mangrove Forest.  There are also new skins being added to the java launcher Noor, Sunny, Ari, Zuri, Makena, Kai, and Efe. To wrap up, the mob vote will be announced between the Tuff Golem, Rascal, and the sniffer.
+     
+### Sector 2: Nintendo
+                SPLATOON 3: with Spaltoon just out, the creators surprised us  with a collaboration with pokemon. Besides that, this new game is very different. FROM the maps, to the intro, to the weapons. tho the game is very different
+                
+
+
+
 # Egg Nog Review #1 11/2021
 
 Name: Bud's Ice Cream of San Francisco Egg Nog Since 1932
